@@ -17,7 +17,7 @@
 
 <div align="left">
 
-[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY) [tiktok](https://tiktok.com/@iuuoollllll)
+[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY) n [tiktok](https://tiktok.com/@iuuoollllll)
 
 
 <img width="250" height="238" alt="image" src="https://github.com/user-attachments/assets/a5e98158-c851-4821-8fe0-38e5fc8ebd20" />
