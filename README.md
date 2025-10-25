@@ -17,7 +17,11 @@
 
 <div align="left">
 
-[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY)  ![tumblr_68bb9e71ec030bfeb579002c6761aa36_9e79751b_100](https://github.com/user-attachments/assets/96319015-f00e-45d7-93b0-97e8f3370cff)
+[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY)  
+<div align="right">
+
+![tumblr_9d51e9710d24283290d83c095614f818_21238fd5_100](https://github.com/user-attachments/assets/1f0ba252-0c1f-4e8d-974a-c9b5289e7f1e)
+
 
 
 
