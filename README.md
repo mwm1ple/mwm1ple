@@ -19,8 +19,7 @@
 
 [dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY)  
 <div align="right">
-
-![tumblr_9d51e9710d24283290d83c095614f818_21238fd5_100](https://github.com/user-attachments/assets/1f0ba252-0c1f-4e8d-974a-c9b5289e7f1e)
+ <img width="768" height="768" alt="image" src="https://github.com/user-attachments/assets/50460233-2d48-43d5-8f76-dd8b8603cfdb" />
 
 
 
