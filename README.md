@@ -8,6 +8,9 @@
 
 <div align="left">
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/8f696456-35df-4620-b79b-b4fdcb701c60" />
+<div align="right">
+<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/68179280-9c5f-420d-85ee-ff3cf7baedb3" />
+
 
 
 
