@@ -19,7 +19,7 @@
 
 [dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY)  
 <div align="right">
-<img width="250" height="265" alt="image" src="https://github.com/user-attachments/assets/130fc733-3c1e-4d2b-af98-85de41d5e4dd" />
+<img width="250" height="238" alt="image" src="https://github.com/user-attachments/assets/a5e98158-c851-4821-8fe0-38e5fc8ebd20" />
 
 
 
