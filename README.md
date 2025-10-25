@@ -1,4 +1,5 @@
 
+<div align="center"
 ![jumpscare-springtrap](https://github.com/user-attachments/assets/57761fdc-9abf-4cd1-b531-6f6a42344985)
 <div align="center"
 
