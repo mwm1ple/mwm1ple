@@ -16,15 +16,8 @@
 ![tumblr_ebc8b648e1e25be1578ab4a4ffe63b9d_39b717b8_250](https://github.com/user-attachments/assets/1b924bec-50f2-48d7-a5fd-4f29090a7e40)
 
 <div align="left">
-  
-[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY) <img width="400" height="43" alt="image" src="https://github.com/user-attachments/assets/6bda7a96-819e-4aa5-9390-21f809ea7d51" />
 
-
-
-
-
-
-
+[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY)  ![tumblr_68bb9e71ec030bfeb579002c6761aa36_9e79751b_100](https://github.com/user-attachments/assets/96319015-f00e-45d7-93b0-97e8f3370cff)
 
 
 
