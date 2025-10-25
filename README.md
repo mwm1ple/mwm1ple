@@ -1,5 +1,6 @@
 
-![cipher-cifera](https://github.com/user-attachments/assets/3f021400-6784-4695-a226-094c7a7ad697)
+![cipher-cifera](https://github.com/user-attachments/assets/3f021400-6784-4695-a226-094c7a7ad697) ![cipher-honkai-star-rail](https://github.com/user-attachments/assets/dd3fb14d-2022-477b-810d-6eea616d63d4)
+
 
 
 
