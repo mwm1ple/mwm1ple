@@ -15,6 +15,9 @@
 
 ![tumblr_ebc8b648e1e25be1578ab4a4ffe63b9d_39b717b8_250](https://github.com/user-attachments/assets/1b924bec-50f2-48d7-a5fd-4f29090a7e40)
 
+<div align="left">
+  
+[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY)
 
 
 
