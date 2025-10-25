@@ -1,7 +1,10 @@
 
+<div align="center"
+![jumpscare-springtrap](https://github.com/user-attachments/assets/57761fdc-9abf-4cd1-b531-6f6a42344985)
+
+
 
 <div align="center"
-![jumpscare-springtrap-fnaf-3-5bpiqv8tcccgy7ln](https://github.com/user-attachments/assets/a41eb261-7d9e-4aef-a99d-5caf1ce2b27b)
 
 
   ![tumblr_8687d528487b1a7c5a19bb092a7772e7_d0452bf5_250](https://github.com/user-attachments/assets/f84f4228-93f3-457a-bd49-e4bf3d45e7ee)
