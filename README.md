@@ -1,8 +1,9 @@
 
+![jumpscare-springtrap (2)](https://github.com/user-attachments/assets/b34077e7-fe78-4308-99d2-05b23f3f7528)
 
 
 <div align="center"
-![jumpscare-springtrap (2)](https://github.com/user-attachments/assets/e725ba27-405b-4430-83fd-d5fb3b2ee44a)
+
 
 
   ![tumblr_8687d528487b1a7c5a19bb092a7772e7_d0452bf5_250](https://github.com/user-attachments/assets/f84f4228-93f3-457a-bd49-e4bf3d45e7ee)
