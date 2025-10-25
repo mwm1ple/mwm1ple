@@ -1,6 +1,6 @@
 <div align="center">
-  ![tumblr_b79127e4019e36426ba163153625b323_3c6ddae5_250](https://github.com/user-attachments/assets/bad1ed8b-21b6-42ef-b2bb-f771d68abc91)
 
+  ![tumblr_b79127e4019e36426ba163153625b323_3c6ddae5_250](https://github.com/user-attachments/assets/c54cb31d-e2b7-4360-a21f-5f2a08e8d5f7)
 
 
   <img width="400" height="59" alt="image" src="https://github.com/user-attachments/assets/994a8027-0af8-4e13-b425-a2995d8c84c2" />
