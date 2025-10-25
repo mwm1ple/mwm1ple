@@ -1,4 +1,8 @@
-<div align="center">
+
+![jumpscare-springtrap-fnaf-3-5bpiqv8tcccgy7ln](https://github.com/user-attachments/assets/e80100df-e94c-487a-8f06-d73962357f6b)
+
+<div align="center"
+
 
   ![tumblr_8687d528487b1a7c5a19bb092a7772e7_d0452bf5_250](https://github.com/user-attachments/assets/f84f4228-93f3-457a-bd49-e4bf3d45e7ee)
 
