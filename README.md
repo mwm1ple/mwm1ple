@@ -17,7 +17,8 @@
 
 <div align="left">
   
-[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY)
+[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY) <img width="400" height="43" alt="image" src="https://github.com/user-attachments/assets/6bda7a96-819e-4aa5-9390-21f809ea7d51" />
+
 
 
 
