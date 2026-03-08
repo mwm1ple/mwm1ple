@@ -10,12 +10,8 @@
   ![tumblr_8687d528487b1a7c5a19bb092a7772e7_d0452bf5_250](https://github.com/user-attachments/assets/f84f4228-93f3-457a-bd49-e4bf3d45e7ee)
 
 <div align="left">
-
-
 <img width="226" height="226" alt="tumblr_b99b57bca49389d0953c57d74a3a5c1f_a63fb91c_1280" src="https://github.com/user-attachments/assets/97cbf392-485e-4884-b2fb-5b8c21d0f151" />
-
 <div align="right">
-
 <img width="226" height="226" alt="tumblr_eab5543117af8fd9e3f1d82c769c9617_c9a93681_1280" src="https://github.com/user-attachments/assets/e8d8e0ea-74bc-4e46-a61a-83ab30b2176a" />
 
 
