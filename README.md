@@ -9,7 +9,7 @@
 
   <img width="400" height="59" alt="image" src="https://github.com/user-attachments/assets/994a8027-0af8-4e13-b425-a2995d8c84c2" />
 
-<img width="336" height="336" alt="tumblr_b99b57bca49389d0953c57d74a3a5c1f_a63fb91c_1280" src="https://github.com/user-attachments/assets/97cbf392-485e-4884-b2fb-5b8c21d0f151" />
+<img width="116" height="116" alt="tumblr_b99b57bca49389d0953c57d74a3a5c1f_a63fb91c_1280" src="https://github.com/user-attachments/assets/97cbf392-485e-4884-b2fb-5b8c21d0f151" />
 /> <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/635d3c8f-e32e-4499-9a4e-83ff5c361366" /> <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/bb189d45-3307-4ba9-8295-e69cc31b06d4" />
 
 
