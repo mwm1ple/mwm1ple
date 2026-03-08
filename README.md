@@ -15,8 +15,9 @@
 
 <div align="center">
 
+<img width="600" height="400" alt="tumblr_8ec513a796b1cd750b53f005341f2440_8cc2dcf8_640" src="https://github.com/user-attachments/assets/3e58c75b-7947-49d2-9bb6-58e8cb6ca8a6" />
 
-![tumblr_0c58c90c549f6f37caac9c6f960ec372_ce01ff8a_640](https://github.com/user-attachments/assets/54f5ccaf-6965-4dd1-a78b-11e87533b312)
+
 
 
 
