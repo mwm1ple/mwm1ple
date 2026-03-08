@@ -29,7 +29,7 @@
 
 <div align="center">
 
-[dni](https://teletype.in/@iuuoolllllll/Z50acvcduRY) n [tiktok](https://tiktok.com/@iuuoollllll)
+[dni]https://teletype.in/@iuuoolllllll/editor/Z50acvcduRY) n [tiktok](https://tiktok.com/@iuuoollllll)
 
 
 <img width="1500" height="204" alt="tumblr_96c4c37d1761c626b60d224e11787675_cc5fe6e4_2048" src="https://github.com/user-attachments/assets/0270ca17-5b89-44c6-b5ba-aafaaaa7fd9b" />
