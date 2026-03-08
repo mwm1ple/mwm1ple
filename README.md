@@ -1,8 +1,9 @@
 
+<img width="1271" height="81" alt="tumblr_fb92defb56a19490b2f60c8a86df9e6f_545ebbd5_1280" src="https://github.com/user-attachments/assets/e7193300-3b29-4bf0-ab8c-5f9881cada7f" />
 
 <div align="center"
 
-<img width="1071" height="61" alt="tumblr_fb92defb56a19490b2f60c8a86df9e6f_545ebbd5_1280" src="https://github.com/user-attachments/assets/ece2f279-883d-44d7-80d3-d0ec920f2fe7"
+
 ![cipher-cifera](https://github.com/user-attachments/assets/53fbe7e0-4590-4947-9dcb-b59ea4ac2697)
 
 
