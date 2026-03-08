@@ -7,7 +7,7 @@
 
   ![tumblr_8687d528487b1a7c5a19bb092a7772e7_d0452bf5_250](https://github.com/user-attachments/assets/f84f4228-93f3-457a-bd49-e4bf3d45e7ee)
 
-<img width="1271" height="81" alt="tumblr_fb92defb56a19490b2f60c8a86df9e6f_545ebbd5_1280" src="https://github.com/user-attachments/assets/ece2f279-883d-44d7-80d3-d0ec920f2fe7" />
+<img width="1071" height="61" alt="tumblr_fb92defb56a19490b2f60c8a86df9e6f_545ebbd5_1280" src="https://github.com/user-attachments/assets/ece2f279-883d-44d7-80d3-d0ec920f2fe7" />
 
 
 <img width="116" height="116" alt="tumblr_b99b57bca49389d0953c57d74a3a5c1f_a63fb91c_1280" src="https://github.com/user-attachments/assets/97cbf392-485e-4884-b2fb-5b8c21d0f151" />
