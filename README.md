@@ -16,7 +16,8 @@
 <div align="center">
 
 
-![tumblr_722b342c2fdce18695692df96931dd40_b124bd42_1280](https://github.com/user-attachments/assets/5ce56572-437b-4cdf-a104-f6baf244b1c9)
+![tumblr_8bf48e68b33d88f33e111fa0eb9e05c1_6c759e61_2048 (2)](https://github.com/user-attachments/assets/a62b5b91-e47d-48ed-a3c4-2da520baf33b)
+
 
 
 
