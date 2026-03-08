@@ -26,7 +26,8 @@
 
 <div align="left"
 
-<img width="781" height="81" alt="tumblr_2bee59be62884f54fc85221dbf5beb9f_1e4b98eb_1280" src="https://github.com/user-attachments/assets/3f27f2ba-ec99-436d-934f-f3b80e2121ab" />
+
+<img width="1500" height="204" alt="tumblr_96c4c37d1761c626b60d224e11787675_cc5fe6e4_2048" src="https://github.com/user-attachments/assets/0270ca17-5b89-44c6-b5ba-aafaaaa7fd9b" />
 
 
 
