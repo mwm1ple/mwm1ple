@@ -14,7 +14,8 @@
 /> <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/635d3c8f-e32e-4499-9a4e-83ff5c361366" /> <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/bb189d45-3307-4ba9-8295-e69cc31b06d4" />
 
 
-<img width="400" height="59" alt="image" src="https://github.com/user-attachments/assets/177e5ee2-4fee-42f7-a638-5290ac387c4f" />
+
+<img width="1271" height="81" alt="tumblr_2bee59be62884f54fc85221dbf5beb9f_1e4b98eb_1280" src="https://github.com/user-attachments/assets/7e19061e-c2ad-4687-9e8c-7e626096b89b" />
 
 
 <div align="center">
