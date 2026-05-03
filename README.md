@@ -9,8 +9,8 @@
 
 
 <div align="left">
-<img width="226" height="226" alt="tumblr_b99b57bca49389d0953c57d74a3a5c1f_a63fb91c_1280" src="https://github.com/user-attachments/assets/97cbf392-485e-4884-b2fb-5b8c21d0f151" />
-<img width="250" height="250" alt="tumblr_0cf688c52279bdd0ff58e0a91123fc48_fd93dc20_250" src="https://github.com/user-attachments/assets/eb955f29-0a7f-4216-94e9-e04950554042" />
+<img width="2048" height="2048" alt="tumblr_07dd9d8a5b4b10f406db76dd0d72d885_e490a438_2048" src="https://github.com/user-attachments/assets/0bf2a506-ec82-454f-b9e1-42531c867662" />
+
 
 
 <img width="226" height="226" alt="tumblr_eab5543117af8fd9e3f1d82c769c9617_c9a93681_1280" src="https://github.com/user-attachments/assets/e8d8e0ea-74bc-4e46-a61a-83ab30b2176a" />
