@@ -2,6 +2,5 @@
 
 
 
-<div align="center"
-  
+
 <img width="2048" height="2048" alt="tumblr_4eccb01af68b37b671a58094de599c57_07584fa7_2048" src="https://github.com/user-attachments/assets/e6f68fc1-d558-4b38-96a8-dfeb234b2a09" />
