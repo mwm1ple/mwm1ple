@@ -7,4 +7,6 @@
 
 <div align="center"
 
-tgc                   tt            info
+tgc                       
+tt         
+info
