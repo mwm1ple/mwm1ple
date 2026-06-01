@@ -24,4 +24,5 @@
 
 
 
-<img width="150" height="20" alt="tumblr_1436295777b444023b518e643bfd7d61_251c2c92_250" src="https://github.com/user-attachments/assets/007f1ac8-4b8a-4e21-a5ab-4f95bf4d1fb4" />
+
+<img width="93" height="70" alt="tumblr_0a071a79816db12d78a0b8bb7844de24_21ccd342_100" src="https://github.com/user-attachments/assets/42ef6b48-50e6-4365-8842-e67ac6b749f6" />
