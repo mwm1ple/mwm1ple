@@ -2,7 +2,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-<div align="center"
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="1262" height="42" alt="tumblr_5638f51733cfaf9a64abf4faa30165a0_a5503b9c_1280 (1)" src="https://github.com/user-attachments/assets/1f3cf19b-261c-4f09-b084-c047e03e4010" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
