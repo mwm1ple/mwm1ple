@@ -22,3 +22,6 @@
 
 [𝗍𝗀𝖼](https://t.me/maplemwi)       ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                [𝗍𝗍](https://tiktok.com/@iuuoollllll)                             ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                                                         [𝖽𝗇𝗂](https://teletype.in/@iuuoolllllll/Z50acvcduRY)
 
+
+<div align="center"
+<img width="150" height="20" alt="tumblr_1436295777b444023b518e643bfd7d61_251c2c92_250" src="https://github.com/user-attachments/assets/007f1ac8-4b8a-4e21-a5ab-4f95bf4d1fb4" />
